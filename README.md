@@ -10,4 +10,4 @@ A few facts about me:
   - 🌈 I have a boyfriend
   - ❤️ I love all my family and friends
   
-"Fear kills more dreams than failure every will" - Suzy Kassem
+"Fear kills more dreams than failure ever will" - Suzy Kassem
